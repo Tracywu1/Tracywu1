@@ -12,4 +12,4 @@
 * 重度精神洁癖患者
 * 科目二三3次郎
 
-![image-20240826220744741](https://ccwu-1316557530.cos.ap-guangzhou.myqcloud.com/image-20240826220744741.png)
+<img src="https://img2024.cnblogs.com/blog/3274634/202408/3274634-20240826221724886-413325978.jpg" alt="image-20240826220744741" style="zoom:25%;" />
