@@ -19,10 +19,10 @@
   ·
   ·
   ·
-  <img src="https://ccwu-1316557530.cos.ap-guangzhou.myqcloud.com/image-20240829140830398.png" style="zoom: 9%;"/>
+  <img src="https://img2024.cnblogs.com/blog/3274634/202408/3274634-20240829142618646-786279238.jpg" style="zoom: 9%;"/>
   ·
   ·
   ·
-  <img src="https://ccwu-1316557530.cos.ap-guangzhou.myqcloud.com/image-20240829141101899.png" style="zoom: 9%;"/>
+  <img src="https://img2024.cnblogs.com/blog/3274634/202408/3274634-20240829142647460-76132714.jpg" style="zoom: 9%;"/>
   </figure>
   </center>
